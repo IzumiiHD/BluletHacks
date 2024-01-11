@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IzumiiHD
-- 👀 I’m interested in Fat oily dicks
+- 👀 I’m interested nothing
 - 🌱 I’m currently learning how to lazy around
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me izumiihd@gmail.com
